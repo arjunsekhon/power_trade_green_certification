@@ -1,0 +1,1 @@
+# power_trade_green_certification
